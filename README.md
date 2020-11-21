@@ -2,7 +2,7 @@
 
 ## Mi nombre es **Fernando S. Saucedo**
 
-Este es mi sitio personal de presentación y redes sociales.
+Sitio personal | Presentación y redes sociales.
 
 ----
 
